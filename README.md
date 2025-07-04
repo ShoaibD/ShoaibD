@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Shoaib Danish]
+# 👋 Hi, I'm Shoaib Danish
 
 ## 🚀 Welcome to my GitHub Profile!
 
